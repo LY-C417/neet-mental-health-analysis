@@ -40,7 +40,7 @@ couple's wages, one of the highest in the world, making it financially
 difficult to return to work when children are young.
 
 Men also have a slightly higher long-term sickness rate (3.22% vs 2.72%), 
-which may partly reflect the lasting health impact of Covid-19 — long-term 
+which may partly reflect the lasting health impact of Covid-19; long-term 
 sickness across all ages surged post-pandemic and has been slow to recover.
 
 ### 🗺️ Where You're Born Still Shapes Your Chances
